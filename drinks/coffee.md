@@ -2,6 +2,6 @@
 - Coffee
 - Water
 - Milk (optional)
-- Brown sugar (optinal)
+- Brown sugar (optional)
 - Cinnamon (optional)
   
