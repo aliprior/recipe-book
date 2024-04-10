@@ -13,7 +13,7 @@ Oil for frying
 
 Instructions:
 
-Soak the chickpeas in water overnight. Drain them well before using.
+Soak the chickpeas in water overnight. Drain them well before using, wash with cold water and then drain again.
 In a food processor, combine the soaked chickpeas, parsley, cilantro, garlic, onion, cumin, coriander, cayenne pepper (if using), and salt. Pulse until everything is finely chopped and well combined, but not pureed.
 Transfer the mixture to a bowl and refrigerate for at least 1 hour.
 Heat oil in a deep skillet or pot over medium heat.
